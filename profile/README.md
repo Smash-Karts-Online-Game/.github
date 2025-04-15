@@ -6,6 +6,8 @@
 
 Best of all? It’s **unblocked**, so you can play it anywhere – even at school!
 
+## <a href="https://izigames.net/smash-karts/">👉 Play Smash Karts Unblocked 👈</a>
+
 ---
 
 ### ⚡️ Why You’ll Love Smash Karts
